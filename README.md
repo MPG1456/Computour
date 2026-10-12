@@ -121,4 +121,4 @@
 
 ### اگر به کامپیوتور علاقه‌مند هستید یا به دنبال فرصت همکاری هستید:
 
-### با ما در ارتباط باشید: **[m.p.golbou@gmail.com](mailto:m.p.golbou@gmail.com)** 
+### با ما در ارتباط باشید: **[shamsi84sh@gmail.com](mailto:shamsi84sh@gmail.com)** 
